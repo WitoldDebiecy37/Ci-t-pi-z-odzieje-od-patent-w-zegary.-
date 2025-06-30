@@ -1,0 +1,1 @@
+# Ci-t-pi-z-odzieje-od-patent-w-zegary.-
